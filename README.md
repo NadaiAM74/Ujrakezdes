@@ -1,0 +1,2 @@
+# Ujrakezdes
+nexius tanulás
